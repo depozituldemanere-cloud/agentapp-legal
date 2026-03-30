@@ -1,5 +1,5 @@
 
-) Privacy Policy (RO) – „Agent App”
+Privacy Policy (RO) – „Agent App”
 Ultima actualizare: [04.03.2026]
 Operator/Dezvoltator: Agent App („noi”)
 Contact: office@lcdesign.ro
